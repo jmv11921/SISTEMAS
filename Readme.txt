@@ -1,1 +1,1 @@
-Hola Juanmi, bona jornada 2 !
+Hola Juanmi, bona jornada 2 laboral !
